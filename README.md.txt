@@ -1,3 +1,3 @@
 #Introduction of me
 
-![Duterte](https://www.google.com.ph/imgres?imgurl=https%3A%2F%2Fqzprod.files.wordpress.com%2F2016%2F10%2Frodgrio-duterte-philippines-relationship-with-god-e1476776352682.jpg%3Fw%3D2901&imgrefurl=http%3A%2F%2Fqz.com%2F811901%2Fgod-will-weep-philippines-president-rodrigo-dutertes-dark-twisted-relationship-with-faith-and-religion%2F&docid=8QbrKgQBqq61gM&tbnid=DSdSbRF1P_FwzM%3A&w=2901&h=1632&itg=1&bih=755&biw=1600&ved=0ahUKEwivm_7duOjPAhXjq1QKHSoiD7UQMwgiKAYwBg&iact=mrc&uact=8)
+![Duterte]()
